@@ -1,0 +1,1 @@
+# ruyxatdan-o-tish
